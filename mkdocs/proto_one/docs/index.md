@@ -19,4 +19,3 @@ The detail Of Book :
 ## 1. How to Win Friends and Influence People
 DALE CARNEGIE.
 First Published in 1973.
-Read Book [here](http://images.kw.com/docs/2/1/2/212345/1285134779158_htwfaip.pdf).
