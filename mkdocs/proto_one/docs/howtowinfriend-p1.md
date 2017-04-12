@@ -50,4 +50,6 @@ General Obregon's philosophy
 
 ``` The only way on earth to influence other people is to talk about what they want and show them how to get it. ```
 
+Every act you have ever performed since the day you were born was performed because you wanted something. If you hadn't wanted that feeling more than you wanted your money, you would not have made the contribution. Of course, you might have made the contribution because you were ashamed to refuse or because a customer asked you to do it. But one thing is certain. You made the contribution because you wanted something.
+
 
