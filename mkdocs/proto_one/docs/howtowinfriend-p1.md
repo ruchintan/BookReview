@@ -52,4 +52,31 @@ General Obregon's philosophy
 
 Every act you have ever performed since the day you were born was performed because you wanted something. If you hadn't wanted that feeling more than you wanted your money, you would not have made the contribution. Of course, you might have made the contribution because you were ashamed to refuse or because a customer asked you to do it. But one thing is certain. You made the contribution because you wanted something.
 
+REMEMBER:
+``` First arouse in the other person an eager want. He who can do this has the whole world with him. He who cannot walks a lonely way. ```
 
+Tomorrow you may want to persuade somebody to do something. Before you speak, pause, and ask yourself: "How can I make this person want to do it?"
+This question will stop us from rushing into a situation heedlessly, with futile chatter about our desires.
+
+Here is one of the best bits of advice ever given about the fine art of human relationships by Henry Ford.
+``` "if there is any one secret of success, it lies in the ability to get the other person's point of view and see things from that person's angle as well as from your own" ```
+
+Yet many salespeople spend a lifetime in selling without seeing things from the customer's angle.
+
+Looking at  the other person's point of view and araousing in him an eager want for something is not to be construed as manipulating that person so that he will do something that is only for your benefit and this detriment. Each party should gain from the negotiation.
+
+William Winter once remarked that "self-expression is the dominant necessity of human nature." Why can't we adapt this same psychology to business dealing? When we have brilliant idea, instead of making others thinks it is ours, why not let them cook and stir the idea themselves. They will then regard it as their own; they will like it and maybe eat a couple of helpings of it.
+
+
+# CONCLUSSION
+
+FUNDAMENTAL TECHNIQUE IN HANDLING PEOPLE :
+
+Principle 1 :
+```Don't crictize, condemn, or complain.```
+
+Principle 2 :
+```Give honest and sincere appreciation.```
+
+Principle 3 :
+```Arouse in the other person an eager want.```
