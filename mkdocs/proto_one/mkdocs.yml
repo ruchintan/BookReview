@@ -1,0 +1,7 @@
+site_name: BOOK REVIEW
+pages:
+    - Home: index.md
+    - How To win Friends & Influence People:
+        - PART ONE - Fundamental Technique Of Handling People : howtowinfriend-p1.md
+    - About: about.md
+theme: mkdocs
